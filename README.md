@@ -1,1 +1,0 @@
-# teknomise.github.io
